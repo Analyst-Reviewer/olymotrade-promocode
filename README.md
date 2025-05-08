@@ -39,6 +39,7 @@ Olymp Trade offers three different statuses with increasing benefits:
 - [Expert Option Promo Code](https://github.com/Analyst-Reviewer/expert-option-code)
 - [IQ Option Promo Code](https://github.com/Analyst-Reviewer/iq-option-promocode)
 - [Exnova Promo Code](https://github.com/Analyst-Reviewer/exnova-promo-code)
+- [Exnova Review for the LATAM in Spanish](https://github.com/Analyst-Reviewer/Exnova-es-confiable)
 
 ## 🎁 How to Use a Promo Code and Activate Bonuses?
 
