@@ -55,4 +55,5 @@ Olymp Trade offers three different statuses with increasing benefits:
 - Deposit **500 USDT** to get **Expert Status**
 
 Don't miss this **limited-time** opportunity to trade with exclusive advantages! 🚀💸
-
+## Follow us:
+[Mirror](https://mirror.xyz/0x80FCCE629e74dD107DE0a4050158385571b0667f)
