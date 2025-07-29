@@ -7,7 +7,7 @@ By following the **special link** below, you will automatically receive **Expert
 - **New Users:** Register via the link and get **Expert Status** for free for 48 hours. To fully test all premium features, make a deposit (optional but recommended).
 - **Existing Users:** Click the link and instantly activate **Expert Status** for 48 hours.
 
-👉 **[Activate Expert Status](https://ul.olymptrade.com/profile?flu=oGRQeLGRA2&affiliate_id=2389204)**
+👉 **[Activate Expert Status](https://tinyurl.com/olympoption)**
 
 💎 **Deposit $20 and get access to the VIP channel and Expert Status for 48 hours!**
 
@@ -48,7 +48,7 @@ Olymp Trade offers three different statuses with increasing benefits:
 3. Enter a valid **Olymp Trade promo code** when depositing funds to get extra bonuses.
 4. Start trading with enhanced conditions and premium features.
 
-👉 **[Get Your Promo Code](https://ul.olymptrade.com/profile?flu=oGRQeLGRA2&affiliate_id=2389204)**
+👉 **[Get Your Promo Code](https://tinyurl.com/olympoption)**
 
 📌 **After testing the Expert Status, you can upgrade permanently:**
 - Deposit **100 USDT** to get **Advanced Status**
